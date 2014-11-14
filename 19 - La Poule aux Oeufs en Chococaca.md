@@ -24,19 +24,3 @@ Si vous lisez ceci, vous allez enfin connaître la vérité
 
 
 
-
-Manger le gateau
-ou se faire manger par le gateau
-On ne sait plus
-on ne sait pas.
-C'est n'importe quoi.
-
-..._...|..__________________ __, , 
-....../ `–-___________–– ;_____|] = = = = paradis 
-...../_==o;;;;;;;;_______.:/ 
-.....), –-.(_(__) / 
-....// (..) ), ––" 
-...//___// 
-..//___// 
-.//___//
-
